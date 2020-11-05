@@ -7,7 +7,7 @@ chennai,                          https://www.linkedin.com/in/amit-kumar-6475147
 Tamilnadu                         Mob:8951972209
 -------------------     ----------------------------
 
-Education
+Education  AMit kumar
 ---------
 
 2011-2015 
